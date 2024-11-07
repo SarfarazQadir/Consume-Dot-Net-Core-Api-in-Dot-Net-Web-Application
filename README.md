@@ -9,3 +9,7 @@
 ![image](https://github.com/user-attachments/assets/1aaf9aa7-669f-40af-96af-be442818d03b)
 
 <h1>Edit Data</h1>
+
+![image](https://github.com/user-attachments/assets/0ad931be-71e5-4f47-9d8d-1c7c6ba184ca)
+
+
